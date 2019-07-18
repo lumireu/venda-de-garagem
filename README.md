@@ -1,5 +1,3 @@
-# Venda de Garagem Lu Mireu
-
 Regras para participar e adquirir qualquer produto postado:
 
 <b>1.</b> Deve-se marcar o produto e escrever <b>Interesse</b>.<br />
