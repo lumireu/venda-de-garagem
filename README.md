@@ -18,4 +18,4 @@ Não. Somente administradores.
 Não. Ao ter interesse pelo produto de venda imediata, deve-se escrever "Interesse" ; e enviar mensagem no privado do administrador anunciante.
 
 4. "Posso reservar um item exclusivo?"<br />
-Não. Para a compra desses itens, deve-se comparecer a Venda de Garagem do dia 24/07 à 27/07 das 09:00h às 17h e enviar os dados explicaria na pergunta ( 2. )
+Não. Para a compra desses itens, deve-se comparecer a Venda de Garagem do dia 24/07 à 27/07 das 09:00h às 17h e enviar os dados explicaria na pergunta 2.
