@@ -1,12 +1,12 @@
 O grupo será aberto às 20:30h para venda imediata de alguns itens.<br />
-#NÃO FAZEMOS RESERVA.
+<b>NÃO FAZEMOS RESERVA.</b>
 
-ITENS EXCLUSIVOS NA COMPRA FÍSICA
+<b>ITENS EXCLUSIVOS NA COMPRA FÍSICA.</b>
 
 Os administradores subirão anúncios SEM preço catalogado de utensílios exclusivos, para os dias da venda de garagem 24/07 à 27/07 enquanto o grupo estiver silenciado
 
 
-PERGUNTAS FREQUENTES
+<b>PERGUNTAS FREQUENTES: </b>
 
 1. "Como eu faço para participar dessa venda de garagem?" <br />
 Para a venda física, favor enviar nome completo e RG no PV para um dos administradores. (Lembrando que os dados pedidos são somente para controle e segurança exigida pelo próprio condomínio).
