@@ -1,5 +1,5 @@
 O grupo será aberto às 20:30h para venda imediata de alguns itens.<br />
-NÃO FAZEMOS RESERVA.
+#NÃO FAZEMOS RESERVA.
 
 ITENS EXCLUSIVOS NA COMPRA FÍSICA
 
