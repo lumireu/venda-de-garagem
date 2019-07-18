@@ -1,6 +1,7 @@
 O grupo será aberto às 20:30h para venda imediata de alguns itens.<br />
 <b>NÃO FAZEMOS RESERVA.</b>
-<br />
+
+
 <b>ITENS EXCLUSIVOS NA COMPRA FÍSICA.</b>
 
 Os administradores subirão anúncios SEM preço catalogado de utensílios exclusivos, para os dias da venda de garagem 24/07 à 27/07 enquanto o grupo estiver silenciado
